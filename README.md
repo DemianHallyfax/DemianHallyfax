@@ -10,4 +10,4 @@ Te deseo lo mejor. Chingate una coca~
 
   *— DH*
 
-  ![](https://github.com/DemianHallyfax/Demian_Hallyfax/blob/main/MiBanderaFB.png){width='3000px'}
+  ![](https://github.com/DemianHallyfax/Demian_Hallyfax/blob/main/MiBanderaFB.png)
