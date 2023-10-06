@@ -1,4 +1,4 @@
-# Demian_Hallyfax: "Bienvenido~"
+# Bienvenido~
 
 ¡Hola!
 Me llamo, *Demian Hallyfax*, es un gusto tenerte por acá, quien quiera que seas. Ponte comodo.
